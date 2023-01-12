@@ -1,5 +1,5 @@
 # kleirasworld.github.io
 
-Kleira Ciarayne
+**Things to do when a stranger is following you**
 
-9- LG BREBEUF
+**1. Punch him**
