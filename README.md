@@ -1,9 +1,13 @@
 # kleirasworld.github.io
 
-**Things to do when a stranger is following you**
+**Kleira Ciarayne C. Espiritu**
 
-**1. Punch him**
+LG Brebeuf
 
-**2. Take him down**
 
-**3. run away**
+
+
+
+| MEAL | MONDAY | TUESDAY | WEDNESDAY | THURSDAY | FRIDAY |
+|------|--------|---------|-----------|----------|--------|
+| BREAKFAST |   EGG   |   EGG  | EGG  |    EGG    | EGG
