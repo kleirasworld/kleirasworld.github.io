@@ -1,24 +1,56 @@
 # kleirasworld.github.io
 
-**Kleira Ciarayne C. Espiritu**
+**All about me**
 
-LG Brebeuf
+(very useful)
 
 
 ![image](https://user-images.githubusercontent.com/122418714/212211249-c4c75ff1-1bf8-49bb-9068-902607f1a3a9.png)
 
-Thankyou for visiting my site
+
  
  
 
 
 
 
-# My daily Meal Plan
+ your goal at the end of the site / things you need to know about me
 
-| MEAL | MONDAY | TUESDAY | WEDNESDAY | THURSDAY | FRIDAY |
-|------|--------|---------|-----------|----------|--------|
-| BREAKFAST |   EGG   |   EGG  | EGG  |    EGG    | EGG
-| LUNCH     |   SISIG      |    HOTDOG    |  SISIG    |    HOTDOG       |    SISIG
+- my favorites
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7HLFCXs9JIE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+- my dislikes 
+
+- my expectations and goals
+
+---------------------------------------------------------
+
+# Now lets start of with the basics:
+
+Hi im Kleira Ciarayne from 9-Brebeuf fron San felipe, 
+
+If you dont know, im the one who always being called "gwapo" by sir nino solomo
+
+and i find it funny and sort of hilarious .
+
+my nickname is kleng or claire given by my family and friends (also old teachers).
+
+and thank you all for coming to my site <3
+
+.
+.
+.
+.
+.
+
+**Now what do I do in my everyday life?**
+1. I go to school
+2. stay at home most of the time
+3. play games
+4. study
+
+
+
+
+
+
+
