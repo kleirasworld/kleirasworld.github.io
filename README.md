@@ -48,9 +48,9 @@ and thank you all for coming to my site <3
 3. play games
 4. study
 
+And I also draw, well used to, i used to like it but now its just a lame hobby.
 
-**
-
+anyways.
 
 
 
